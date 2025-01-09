@@ -1,7 +1,7 @@
 # OTTODUTRA
 
 ## myself
-Hi everyone, I am Otto Dutra, I joined the Deputy engineer team Jan,2025. I am an easy going person, talkative and I like help people and learn from others. Hopefully, I can contribute to achieve the team goals.
+Hi everyone, I am Otto Dutra, I joined the Deputy engineer team Jan,2025. I am an easy going person, talkative and I like to help people and learn from others. Hopefully, I can contribute to achieve the team goals.
 
 ## my interests
 I am an outdoor person and I like to do different things every weekeng. I like to go coastal walks, hiking, play football, skating, road trips, discovery new Brewings and watch live music concerts.
